@@ -1,0 +1,2 @@
+# locuras
+warthunder
